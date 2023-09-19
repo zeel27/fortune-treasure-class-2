@@ -1,0 +1,1 @@
+# fortune-treasure-class-2
